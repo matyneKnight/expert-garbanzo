@@ -74,4 +74,4 @@ Tous les pneus ne se valent pas. Certains adhèrent mieux à la route, d’autre
 
 #### Nous espérons que notre article vous a été utile.
 
-_**Avec BON A SAVOIR de Mekano votre véhicule est bien entretenu.**_
+_**Recevez chaque jour nos conseils avec BON A SAVOIR dans le Blog Mekano.**_
