@@ -59,7 +59,7 @@ Ensuite, cela vous fait surtout respirer un air vicié par les pots d’échappe
 
 ## 10\. Roulez moins vite
 
-Pour un long voyage, avec la plupart des véhicules « classiques », **réduire de 10 km / h sa vitesse permet de consommer moins de carburant. **
+Pour un long voyage, avec la plupart des véhicules « classiques », **réduire de 10 km / h sa vitesse permet de consommer moins de carburant.**
 Ce n’est pas un gros sacrifice : passer de 130 à 120 km / h ne fait perdre que 4 minutes tous les 100 km !
 
 ## 11\. Coupez la climatisation
